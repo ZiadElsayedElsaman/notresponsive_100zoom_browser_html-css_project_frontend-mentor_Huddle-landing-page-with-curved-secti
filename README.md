@@ -1,0 +1,1 @@
+# notresponsive_100zoom_browser_html-css_project_frontend-mentor_Huddle-landing-page-with-curved-secti
